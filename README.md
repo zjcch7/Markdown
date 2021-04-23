@@ -9,6 +9,7 @@ Some of my favorite video game lore. [Cool Game Lore](https://www.ishtar-collect
 
 My _newest_ hobby. [Fun Hobby](https://www.discstore.com/discgolf)
 
+## Favorite Cars Ranked
 
 |   Rank  |       Car Names      |
 |:-------:|:--------------------:|
